@@ -47,3 +47,6 @@ innovative and impactful projects.
 
 - 💼 LinkedIn:  *https://www.linkedin.com/in/akshit-bishtaniya-5210362aa/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_verification_details%3BDlddQf9QTOKBmYFLYDlftA%3D%3D*
 - 📧 Email: *bishtaniyaakshhit@gmail.com*
+- 📱 Phone: **+91-9412166001**
+  
+      
